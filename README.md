@@ -1,2 +1,2 @@
-# innerinetofeverything
-Inner I Net Of Everything
+# innernetofeverything
+Inner Net Of Everything
