@@ -1,4 +1,4 @@
-## Inner Net Of Everything
+## Inner Net Of Everything , a Handshake TLD
 
 | [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/) | [Contact](https://innerinetcompany.webflow.icontacto) | [IINC](http://dlink.innerinetcompany.hns.to/) |
 
