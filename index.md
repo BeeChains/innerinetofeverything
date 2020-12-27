@@ -1,4 +1,4 @@
-## Inner I Net Of Everything
+## Inner Net Of Everything
 
 | [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/) | [Contact](https://innerinetcompany.webflow.icontacto) | [IINC](http://dlink.innerinetcompany.hns.to/) |
 
